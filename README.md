@@ -1,1 +1,2 @@
 # PSC-PAULISTA
+Júlia Kawashimo
